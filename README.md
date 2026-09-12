@@ -1,1 +1,2 @@
-https://docs.google.com/presentation/d/1QZtVo0VZhSweimvaY_UDxZeQHIjlydijwWRKieUykbw/edit?usp=sharing
+[РЕКЛАМНЫЙ САЙТ С ВЫГРУЗКОЙ СТАТИСТИКИ В ЭКСЕЛЬ.pptx](https://github.com/user-attachments/files/32141683/default.pptx)
+
